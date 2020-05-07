@@ -1,0 +1,2 @@
+# Szamtech-A-I
+Jatek
